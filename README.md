@@ -1,4 +1,4 @@
-## It's amazon time 
+## It's amazing time 
 
 My video change to cartoon
 
